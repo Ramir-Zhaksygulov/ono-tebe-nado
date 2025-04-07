@@ -1,1 +1,1 @@
-https://github.com/Ramir-Zhaksygulov/ono-tebe-nado
+https://github.com/Ramir-Zhaksygulov/ono-tebe-nado-fd
